@@ -10,6 +10,6 @@
 - 玩的最久的游戏，原神 & 明日方舟
 - 可以通过邮箱联系我：798032825@qq.com
 
-# 资料卡
-![](https://genshin-card.getloli.com/1-40/16528905.png)
+### 资料卡
+![原神卡片](https://genshin-card.getloli.com/1-40/16528905.png)
 
