@@ -11,7 +11,5 @@
 - 可以通过邮箱联系我：798032825@qq.com
 
 
-## 原神资料卡
-
 ![](https://genshin-card.getloli.com/rand/16528905.png)
 
