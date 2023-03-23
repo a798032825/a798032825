@@ -11,5 +11,5 @@
 - 可以通过邮箱联系我：798032825@qq.com
 
 ### 资料卡
-[![图片](https://genshin-card.getloli.com/detail/5-7,29,30,42,51,61,62,64,66,67,72,75-80,82-89,91-93,95-108/16528905.png)](https://genshin-card.getloli.com)
+[![图片](https://genshin-card.himiku.com/detail/5-7,29,30,42,51,61,62,64,66,67,72,75-80,82-89,91-93,95-108/16528905.png)](https://genshin-card.getloli.com)
 
